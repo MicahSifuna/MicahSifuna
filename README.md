@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://micahkutoto.netlify.app/](https://micahkutoto.netlify.app/)
 
-- ⚡ Fun fact **I love dark jokes**
+- ⚡ Fun fact **I love dark humor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
